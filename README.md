@@ -1,2 +1,5 @@
-# escolappz24
-aula2024
+###boas vindas ao meu perfil🫀
+
+meu nome e: Iuri
+
+tenho 17y
